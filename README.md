@@ -1,0 +1,2 @@
+# detyra1
+Detyra
